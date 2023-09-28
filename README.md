@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @PriyankaKhodiyar18
+- 👋 Hi, I’m Priyanka Khodiyar
 - 👀 I’m interested in learning new things
 - 🌱 I’m currently in Hyderaad
 - 💞️ I’m looking to collaborate on freelancing recruitment world
