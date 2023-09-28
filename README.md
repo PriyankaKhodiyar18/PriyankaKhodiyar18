@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @PriyankaKhodiyar18
 - 👀 I’m interested in learning new things
-- 🌱 I’m currently leaving in Hyderaad
+- 🌱 I’m currently in Hyderaad
 - 💞️ I’m looking to collaborate on freelancing recruitment world
 - 📫 How to reach me - priyankakhodiyar14@gmail.com
 
